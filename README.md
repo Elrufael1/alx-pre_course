@@ -1,1 +1,1 @@
-My second readme 
+getting the hung of it
